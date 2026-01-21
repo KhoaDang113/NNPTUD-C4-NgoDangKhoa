@@ -1,1 +1,1 @@
-# NNPTUD-C4-NgoDangKhoa
+Ngô Đăng Khoa - 2280601515 
